@@ -1,2 +1,2 @@
 # The-Cosmoverse
-Cosmo is a crab
+Cosmo is a cute lil pretty fox
