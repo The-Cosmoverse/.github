@@ -1,2 +1,2 @@
-# The-Cosmoverse
-Cosmo is a cute lil pretty fox
+# Cosmoverse
+Cosmo is a cute lil pretty crab
